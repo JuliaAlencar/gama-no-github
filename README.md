@@ -1,0 +1,3 @@
+Boa noite, pessoal!
+
+Para mim, o curso até agora tem sido bastante interessante e engajador. A demanda pelas entregas constantes me ajudam a manter progresso diariamente para dar conta dos deliverables, e o formato das aulas, textos e vídeos no geral despertam interesse. Fico feliz de haver uma preocupação com as soft skills tanto quanto com as hard skills, e espero estar me desenvolvendo tanto quanto possível nesse processo!
